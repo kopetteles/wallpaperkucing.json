@@ -1,0 +1,1 @@
+# wallpaperkucing.json
